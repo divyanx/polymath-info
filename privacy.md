@@ -31,4 +31,4 @@ We may update this policy from time to time. Updates will be posted on this page
 
 ## Contact
 If you have questions about this policy, contact us at:
-[divyans.24888@gmail.com]
+[divyansh.24888@gmail.com]
